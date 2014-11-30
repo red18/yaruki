@@ -1,4 +1,4 @@
 やるき - Yaruki
 ======
 
-やるき - Be Motivated To Do
+Be Motivated To Do
